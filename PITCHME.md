@@ -10,8 +10,20 @@
 +++
 ### De reis naar Londenbury
 ---
-## karakters
+## belangerijke karakters
 +++
 ### Chayenne
 
 Protagonist en heeft in het begin niet veel om zorgen over te maken
++++
+### Taylina
+
+Oudere zus van Chayenne, heeft bijna de rol van protagonist
+---
+## Plaatsen in het verhaal
++++
+Huwelijk van Taylina
+
+LondenBury
+---
+# Einde
