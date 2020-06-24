@@ -1,11 +1,17 @@
 # Verloren Liefde
 ---
+## Verhaal
+---
+### verhaal opgedeeld in drie stukken
++++
+### De situatie van Chayenne (inleiding)
++++
+### Het huwelijk van Taylina
++++
+### De reis naar Londenbury
+---
 ## karakters
 +++
 ### Chayenne
-+++
-Hoofdrolspeelster
----
-## Verhaal
-+++
-de liefde tussen Taylina en Raul
+
+Protagonist en heeft in het begin niet veel om zorgen over te maken
